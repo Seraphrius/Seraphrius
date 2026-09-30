@@ -8,7 +8,7 @@
 <br><br>
 <pre>I don't know what I'm doing.
 Being here, or on Pony.Town
-But I am approachable, friendly. 
+But I am approachable. 
 </pre>
 <br>
 ⌞ Ｉ  ｒｅｊｅｃｔ  ｍｙ  ｈｕｍａｎｉｔｙ  ＪｏＪｏ. ⌝
