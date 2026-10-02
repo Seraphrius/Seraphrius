@@ -9,10 +9,10 @@
 <pre>
 I don't know what I'm doing. 
 Being here, or on Pony.Town.
-Often daydreaming or storyboarding ideas.
+Often daydreaming ideas.
 
 Approachable if you can handle the truth. 
-If you can't handle a reality check then DNI.
+If you can't handle reality then DNI.
 </pre>
 <br>
 ⌞ Ｉ  ｒｅｊｅｃｔ  ｍｙ  ｈｕｍａｎｉｔｙ  ＪｏＪｏ. ⌝
