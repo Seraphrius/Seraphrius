@@ -7,10 +7,11 @@
 <img width="370" height="224" alt="Diohdartwork" src="https://github.com/user-attachments/assets/da43628f-b7d0-480a-8df8-36b4a0c48046" align=right />
 <br><br>
 <pre>
-I don't know what I'm doing. Being here, or on Pony.Town.
+I don't know what I'm doing. 
+Being here, or on Pony.Town.
 Often daydreaming or storyboarding ideas.
 
-Approachable, so long as you can handle the truth. 
+Approachable if you can handle the truth. 
 If you can't handle a reality check then DNI.
 </pre>
 <br>
