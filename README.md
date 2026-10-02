@@ -9,7 +9,8 @@
 <pre>I don't know what I'm doing.
 Being here, or on Pony.Town.
 
-Approachable within the reason of you being able to handle a blunt and honest person. If you can't handle a reality check then DNI.
+Approachable, so long as you can handle the truth. 
+If you can't handle a reality check then DNI.
 </pre>
 <br>
 ⌞ Ｉ  ｒｅｊｅｃｔ  ｍｙ  ｈｕｍａｎｉｔｙ  ＪｏＪｏ. ⌝
